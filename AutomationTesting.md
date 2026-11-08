@@ -4,7 +4,7 @@
 
 👉 ლექტორის პროფილის ნახვა: https://www.linkedin.com/in/levanqerdikashvili/
 
-👉 კურსის დეტალური სილაბუსი შეგიძლიათ იხილოთ აქ: სილაბუსი
+👉 კურსის დეტალური სილაბუსი შეგიძლიათ იხილოთ აქ: [სილაბუსი](https://drive.google.com/file/d/1KjyC5_i8_xl_pYRVPIdeS6nJEz7fPr5i/view)
 
 🐞 რას ეფუძნება კურსი❓ 
 
